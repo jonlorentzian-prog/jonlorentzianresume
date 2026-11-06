@@ -1,7 +1,7 @@
 # Jonathan Lorentzian
 ### Product Manager
 
-📍 San Diego, CA | 📱 (818) 521-1222 | 📧 jonathanlorentzian@gmail.com | [💼 LinkedIn](https://linkedin.com)
+📍 San Diego, CA | 📱 (818) 521-1222 | 📧 jonathanlorentzian@gmail.com
 
 ---
 
